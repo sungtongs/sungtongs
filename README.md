@@ -1,7 +1,5 @@
- ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎
-<font size="5">  <p style="text-align: center;">∢‎  ╭ **he**  shi  ...     seventeen  
- ‎ *system*   ‎  ‎ ‎ 
- ___taken___ , factive heavy ◞  ‎⋇ </p> </font> ‎ ‎  ‎  ‎
+<font size="5">  <p style="text-align: center;">∢‎  ╭ **he**  shi  ...     eighteen  
+ ‎ *system*   ‎ ___taken___ , factive heavy ◞  ‎⋇ </p> </font> ‎ ‎  ‎  ‎
   ‎ ‎ ‎ ‎ ‎ ‎ ‎  
 <font size="1"><p style="text-align: center;">‎𝆡  ‎ ⯏ *nmlcllctv on disc, feel free to add* ⯎ 
 
